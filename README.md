@@ -1,4 +1,4 @@
-# WhatsApp Status Checker
+# CORAZON-MD WhatsApp Status Checker
 
 ![WhatsApp Status Checker](static/images/WhatsApp%20Status%20Checker.png)
 
