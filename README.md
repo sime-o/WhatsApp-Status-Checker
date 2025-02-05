@@ -41,8 +41,8 @@ src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 <br>
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><https://files.catbox.moe/4231aa.jpg'/></a>
+<a><https://files.catbox.moe/4231aa.jpg'/></a>
  
 
 **𝗛𝗢𝗦𝗧 𝗢𝗡 𝗗𝗜𝗦𝗖𝗢𝗥𝗗**
@@ -53,14 +53,14 @@ src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a href="https://bot-hosting.net/?aff=1259151615210819614"><img src="https://img.shields.io/badge/SIGNUP%20&%20DEPLOY-gold" alt="Scalingo Deploy" width="150"></a>
 </details
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src=https://files.catbox.moe/4231aa.jpgif'/></a>
 
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://files.catbox.moe/4231aa.jpgif'/></a>
 
 
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://files.catbox.moe/4231aa.jpgif'/></a>
 
 ## 𝗦𝗨𝗣𝗣𝗢𝗥𝗧 𝗨𝗦 𝗕𝗬 𝗝𝗢𝗜𝗡𝗜𝗡𝗚 𝗧𝗛𝗘𝗦𝗘 𝗟𝗜𝗡𝗞𝗦
 
